@@ -1,0 +1,1 @@
+# manual-resistencia-el-juego
